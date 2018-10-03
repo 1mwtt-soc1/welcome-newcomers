@@ -6,3 +6,4 @@
 - Paula Bernal
 - Mara Catalina Aguilera Cañón.
 - Nwamaka Okafor
+- Jessica Abigail Sanchez Cervantes
