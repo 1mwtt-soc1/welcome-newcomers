@@ -7,3 +7,4 @@
 - Mara Catalina Aguilera Cañón.
 - Nwamaka Okafor
 - Jessica Abigail Sanchez Cervantes
+- Sarah Constancio
