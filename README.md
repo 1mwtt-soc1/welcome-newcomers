@@ -3,3 +3,4 @@
 
 - Virginia Balseiro
 - Rox Arten
+- Paula Bernal
