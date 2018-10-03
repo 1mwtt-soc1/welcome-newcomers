@@ -4,3 +4,4 @@
 - Virginia Balseiro
 - Rox Arten
 - Paula Bernal
+- Mara Catalina Aguilera Cañón.
