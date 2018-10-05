@@ -10,3 +10,4 @@
 - Sarah Constancio
 - Ana Sustic
 - Krystal NHP
+- Tianna Vittoria
