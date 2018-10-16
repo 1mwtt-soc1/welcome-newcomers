@@ -12,3 +12,4 @@
 - Krystal NHP
 - Tianna Vittoria
 - Marianne Swann
+- Joanna Wasowicz
