@@ -13,3 +13,4 @@
 - Tianna Vittoria
 - Marianne Swann
 - Joanna Wasowicz
+- Beth Martin
