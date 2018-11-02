@@ -15,3 +15,4 @@
 - Joanna Wasowicz
 - Beth Martin
 - Jamey Hansen
+- Yoanna Pol
