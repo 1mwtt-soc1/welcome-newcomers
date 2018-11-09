@@ -17,4 +17,3 @@
 - Jamey Hansen
 - Yoanna Pol
 - Silvia Vázquez
-- Sian Fairley
