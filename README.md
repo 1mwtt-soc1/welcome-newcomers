@@ -18,4 +18,3 @@
 - Yoanna Pol
 - Silvia Vázquez
 - Sian Fairley
-
